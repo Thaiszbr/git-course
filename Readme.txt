@@ -1,12 +1,13 @@
 #GitHub
 
-Musica Duvida boa parte 1
+Musica Duvida boa parte 2
 
-Às vezes
-Às vezes é melhor terminar brigado do que terminar de boa
-Sabe por quê? (Por quê?)
-Porque curativo, quando arranca duma vez, dói menos
-(Bem menos)
-Bem menos
-E essa musica fala disso
-Se liga aí ó
+Dois meses e nada
+Nenhuma foto, zero boato, nenhuma farra
+Sumiu do mapa
+Trocou de chip, trocou de vida
+E nem me passou um pingo de raiva
+Era mais fácil
+Ter pegado outro alguém na minha cara
+Que eu tomava vergonha na cara
+E descrençava dessa saudade
