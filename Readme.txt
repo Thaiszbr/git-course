@@ -1,11 +1,16 @@
 #GitHub
 
-Historia sofrida
+Historia sofrida parte 2
 
-Acabei de abrir as suas mensagens
-Estranhei, em dias normais você não tem coragem
-Pelo tanto de áudio, o tanto de álcool
-'To vendo que é a bebida que fala a verdade
+Fácil demais, sair e querer voltar
+Meu coração não vai guardar o lugar
+Ninguém tem meu melhor mais de uma vez
+Receba o troco aí dessa troca que você fez
+Fácil demais, sair e querer voltar
+Meu coração não vai guardar o lugar
+Ninguém tem meu melhor mais de uma vez
+Receba o troco aí dessa troca que você fez
+Nessa caminha aqui não deita ex
 Sua escolha não foi das melhores e já quer voltar
 Sua ausência foi suficiente pro choro secar
 Recuperei, aí eu notei
