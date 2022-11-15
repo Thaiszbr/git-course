@@ -1,18 +1,12 @@
 #GitHub
 
-Historia sofrida parte 2
+Musica Duvida boa parte 1
 
-Fácil demais, sair e querer voltar
-Meu coração não vai guardar o lugar
-Ninguém tem meu melhor mais de uma vez
-Receba o troco aí dessa troca que você fez
-Fácil demais, sair e querer voltar
-Meu coração não vai guardar o lugar
-Ninguém tem meu melhor mais de uma vez
-Receba o troco aí dessa troca que você fez
-Nessa caminha aqui não deita ex
-Sua escolha não foi das melhores e já quer voltar
-Sua ausência foi suficiente pro choro secar
-Recuperei, aí eu notei
-Que a melhor parte de gostar de você
-Foi quando eu parei
+Às vezes
+Às vezes é melhor terminar brigado do que terminar de boa
+Sabe por quê? (Por quê?)
+Porque curativo, quando arranca duma vez, dói menos
+(Bem menos)
+Bem menos
+E essa musica fala disso
+Se liga aí ó
