@@ -1,67 +1,13 @@
-#Github
+#GitHub
 
-Musica Meteoro da Paixão
+Historia sofrida
 
-Te dei o sol
-Te dei o mar
-Pra ganhar seu coração
-Você é raio de saudade
-Meteoro da paixão
-Explosão de sentimentos
-Que eu não pude acreditar aah
-Como é bom poder te amar
-Depois que eu te conheci
-Fui mais feliz
-Você é exatamente o que eu sempre quis
-Ela se encaixa perfeitamente em mim
-O nosso quebra-cabeça teve fim
-Se for sonho, não me acorde
-Eu preciso flutuar
-Pois só quem sonha
-Consegue alcançar
-Te dei o sol
-Te dei o mar
-Pra ganhar seu coração
-Você é raio de saudade
-Meteoro da paixão
-Explosão de sentimentos
-Que eu não pude acreditar aah
-Como é bom poder te amar
-Depois que eu te conheci
-Fui mais feliz
-Você é exatamente o que eu sempre quis
-Ela se encaixa perfeitamente em mim
-O nosso quebra-cabeça teve fim
-Se for sonho, não me acorde
-Eu preciso flutuar
-Pois só quem sonha
-Consegue alcançar
-Te dei o sol
-Te dei o mar
-Pra ganhar seu coração
-Você é raio de saudade
-Meteoro da paixão
-Explosão de sentimentos
-Que eu não pude acreditar aah
-Como é bom poder te amar
-Tão veloz quanto a luz
-Pelo universo eu viajei
-Vem me guia, me conduz
-Que pra sempre te amarei
-Te dei o sol
-Te dei o mar
-Pra ganhar seu coração
-Você é raio de saudade
-Meteoro da paixão
-Explosão de sentimentos
-Que eu não pude acreditar aah
-Como é bom poder te amar
-Te dei o sol
-Te dei o mar
-Pra ganhar seu coração
-Você é raio de saudade
-Meteoro da paixão
-Explosão de sentimentos
-Que eu não pude acreditar aah
-Como é bom poder te amar aah
-Como é bom poder te amar
+Acabei de abrir as suas mensagens
+Estranhei, em dias normais você não tem coragem
+Pelo tanto de áudio, o tanto de álcool
+'To vendo que é a bebida que fala a verdade
+Sua escolha não foi das melhores e já quer voltar
+Sua ausência foi suficiente pro choro secar
+Recuperei, aí eu notei
+Que a melhor parte de gostar de você
+Foi quando eu parei
