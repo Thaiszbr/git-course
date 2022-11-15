@@ -1,13 +1,12 @@
 #GitHub
 
-Musica Duvida boa parte 2
+Musica Duvida boa parte 3
 
-Dois meses e nada
-Nenhuma foto, zero boato, nenhuma farra
-Sumiu do mapa
-Trocou de chip, trocou de vida
-E nem me passou um pingo de raiva
-Era mais fácil
-Ter pegado outro alguém na minha cara
-Que eu tomava vergonha na cara
-E descrençava dessa saudade
+Me diz por que você não aparece com outra pessoa
+A certeza ruim é bem melhor que uma dúvida boa
+Me diz por que você não aparece com outra pessoa
+A certeza ruim é bem melhor que uma dúvida boa
+Só assim saio grilado, louco, beijando bocas aleatórias
+E paro de esperar quem eu não sei se volta
+Só assim saio grilado, louco, beijando bocas aleatórias
+E paro de esperar quem eu não sei se volta
